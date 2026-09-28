@@ -1,0 +1,2 @@
+# premium-vent-figure-001-ventriloquist-figure-jaw-mec
+Struggling to get your ventriloquist figure's jaw to move naturally? Most builders hit dead ends with disorganized notes and forgotten measurements—this Notion template turns your workshop chaos into a repeatable, mechanical success.  This template solves the core challenge of jaw mechanism design by providing a structured workflow that tracks ever
